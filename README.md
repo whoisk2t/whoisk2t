@@ -1,16 +1,17 @@
-## Hi there 👋
+![tumblr_d36e62742b588de9a5ef8dded0210865_c111074f_1280](https://github.com/user-attachments/assets/740b0fff-5ec7-439d-9604-053fa8f0cbcf)
 
-<!--
-**whoisk2t/whoisk2t** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+.・。.・゜✭・.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+ ⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆ 　 🀥 - ,,, ˚ 　· 　 .  ***k*****ᴀt** 
+
+——————        ***ꜱ*****ʜᴇ** ***彡*** ***ʜ*****ᴇʀ** ***⤑*** ***ᴛ*****ʜᴇʏ** ***彡*** ***ᴛ*****ʜᴇᴍ** 
+
+ ***˗ˏˋ ´ˎ˗　 ⁺***
+  　
+**ʜᴏᴡ** ᴅɪᴅ ***ᴡᴇ*** ɢᴇᴛ ***ʜᴇʀᴇ*** 
+
+.・。.・゜✭・.
+
+![tumblr_162c8aeae0799fa719445428643b8c8a_00575502_1280](https://github.com/user-attachments/assets/832cb617-0553-41e2-98b8-a728fcbe2f3f)
