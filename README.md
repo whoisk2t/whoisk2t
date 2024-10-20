@@ -1,5 +1,4 @@
-![tumblr_d36e62742b588de9a5ef8dded0210865_c111074f_1280](https://github.com/user-attachments/assets/740b0fff-5ec7-439d-9604-053fa8f0cbcf)
-
+![Katsuki Bakugou ✩](https://github.com/user-attachments/assets/52a67b8d-8f21-4212-a392-9d2b798ed30c)
 
 .・。.・゜✭・.
 
@@ -14,4 +13,4 @@
 
 .・。.・゜✭・.
 
-![tumblr_162c8aeae0799fa719445428643b8c8a_00575502_1280](https://github.com/user-attachments/assets/832cb617-0553-41e2-98b8-a728fcbe2f3f)
+![💥 — Bakugou Katsuki ☆ My hero](https://github.com/user-attachments/assets/1e45dfe6-8e53-481d-bbdf-682cf010ee0e)
